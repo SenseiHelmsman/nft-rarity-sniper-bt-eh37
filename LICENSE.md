@@ -1,4 +1,4 @@
-# 
+# rare bot de trading NFT herramientas es el mejor bot de trading NFT herramientas con transacciones en paquete y análisis de rareza. Seguro, confiable y optimizado para estrategias
 
 
 
